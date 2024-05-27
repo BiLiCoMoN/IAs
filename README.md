@@ -15,7 +15,7 @@ A idéia de publicar por meio do blogger se trata de uma comodidade por já ter 
 
 ### Vale ressaltar que esta experiência me fez desejar retomar no intento de publicar meus conteúdos
 
-
+-------------------------------------------------------------------------------------------------------
 
 
 ### Publicação de PODCAST por meio do Youtube: https://youtu.be/DBG9lQeE3II
